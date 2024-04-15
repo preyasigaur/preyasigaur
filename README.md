@@ -1,8 +1,6 @@
-### Hi there 👋
+### Hello! 
+https://github.com/preyasigaur/preyasigaur/assets/107454068/68b499ac-b0a7-4f48-b0a1-0d406dba454c
 
-
-
-https://github.com/preyasigaur/preyasigaur/assets/107454068/c859fc32-8e4e-435e-882a-27cb172f6ed8
 
 
 
